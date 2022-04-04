@@ -1,1 +1,1 @@
-# Html ödevi tamamlanmıştır :d
+# Kişisel hakkımda sayfası güncellendii 
